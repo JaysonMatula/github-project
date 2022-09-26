@@ -1,2 +1,2 @@
 # github-project
-lewis email: jaysonmmatula@gmail.com
+lewis email: jaysonmmatula@lewisu.edu
